@@ -1,6 +1,6 @@
 <div align="center">
 
-check rentry right [here](https://rentry.co/needyourbIood)
+check rentry right [here](https://rentry.co/needyourblood)
 
 
 
