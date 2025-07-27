@@ -10,5 +10,5 @@ LELLEELELLELE I LIKE PLANETLORDLELELELELELL (art by me)
 
 drawing him is a pleasure atp
 
-<img width="762" height="555" alt="my-image" src="https://github.com/user-attachments/assets/fd4ca102-e902-445e-a3a9-695034e51a56" />
+<img width="762" height="585" alt="my-image" src="https://github.com/user-attachments/assets/fd4ca102-e902-445e-a3a9-695034e51a56" />
 
