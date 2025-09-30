@@ -1,9 +1,4 @@
-<div align="center">
-
-[atabook](https://wishbone.atabook.org/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/orph)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[links](https://rentry.co/lowswimmer)
+[ATABOOK](https://wishbone.atabook.org/)ㅤㅤ[INFO](https://rentry.co/orph)ㅤㅤ[LISTO](https://listography.com/orph)
 
 
-
-
-https://github.com/user-attachments/assets/4fbf55fb-3f55-4745-98f7-8854c9f8ca87
-
+![ssstik io_1759257751142_1_30](https://github.com/user-attachments/assets/ca39dbde-c8ab-4b7e-ae6e-2a49fba2dd50)
