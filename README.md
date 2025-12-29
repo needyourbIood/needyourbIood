@@ -1,4 +1,4 @@
-[ATABOOK](https://yfl.atabook.org/)ㅤㅤ[INFO](https://rentry.co/novoamor)ㅤㅤ[DIRECTORY](https://rentry.co/lowswimmer)ㅤㅤ[LISTO](https://listography.com/orph)
+[ATABOOK](https://yfl.atabook.org/)ㅤㅤ[INFO](https://rentry.co/1670)ㅤㅤ[DIRECTORY](https://rentry.co/lowswimmer)ㅤㅤ[LISTO](https://listography.com/orph)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
