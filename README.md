@@ -1,10 +1,38 @@
-[ATABOOK](https://yfl.atabook.org/)ㅤㅤ[INFO](https://rentry.co/1670)ㅤㅤ[DIRECTORY](https://rentry.co/lowswimmer)ㅤㅤ[LISTO](https://listography.com/orph)
+[atabook](https://yfl.atabook.org/) [ext](https://rentry.co/1670)ㅤ
 
+i can wait if i want but it  
+will never be good enough  
+like i want to believe it is.  
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-ㅤ<div align="center">
 
-https://github.com/user-attachments/assets/9e4985fa-3ad5-4c5d-9776-1b7c19d3850d
+
+
+
+ ‎ ‎ ‎ 
+  ‎ ‎ ‎
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+  
+
+
+
 
 
 
