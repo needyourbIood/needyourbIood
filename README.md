@@ -1,8 +1,8 @@
 [atabook](https://yfl.atabook.org/) [ext](https://rentry.co/1670)ㅤ
 
-i can wait if i want but it  
-will never be good enough  
-like i want to believe it is.  
+its okay  
+to be angry  
+but not to hurt me    ?
 
 
 
