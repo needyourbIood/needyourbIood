@@ -1,16 +1,13 @@
 [atabook](https://yfl.atabook.org/) [ext](https://rentry.co/1670)ㅤ
 
-its okay  
-to be angry  
-but not to hurt me    ?
+spierdala mi 👀 na [jego](github.com/TTHEGRIND) dupe
 
 <div align="center"/>
 
-https://github.com/user-attachments/assets/72593591-578e-4492-9956-615f841a8ae7
+
+https://github.com/user-attachments/assets/b19923c1-4b50-4b60-bf0b-9ef965cdbd37
 
 
-
- ‎ ‎ ‎ 
   ‎ ‎ ‎
 
 
