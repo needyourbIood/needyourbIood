@@ -1,6 +1,6 @@
 [atabook](https://yfl.atabook.org/) [ext](https://rentry.co/1670)ㅤ
 
-spierdala mi 👀 na [jego](github.com/TTHEGRIND) dupe
+spierdala mi 👀 na [jego](https://github.com/TTHEGRIND) dupe
 
 <div align="center"/>
 
