@@ -1,8 +1,10 @@
 [atabook](https://yfl.atabook.org/) [ext](https://rentry.co/needyourblood)ㅤ
 
-[wiktor](https://github.com/dajczman) biseks island 24 😭❤️
 
-<img width="515" height="495" alt="image" src="https://github.com/user-attachments/assets/404d3bb1-ed0b-40bb-b0ec-c3b7f913d379" />
+
+https://github.com/user-attachments/assets/5e66c35a-e337-43fd-9776-f322b98aef35
+
+
 
 
 </div>
