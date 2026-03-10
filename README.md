@@ -1,5 +1,7 @@
 [atabook](https://yfl.atabook.org/)ㅤ[ext](https://rentry.co/needyourblood)ㅤ[yappy yap](https://rentry.co/ethelcain)
 
+i come back there once a while. i have no interest in this universe anymore 
+
 
 <img width="448" height="258" alt="Zrzut-ekranu-2026-02-21-134228" src="https://github.com/user-attachments/assets/1be1ea30-5cf0-44b1-93cb-6893ca3d625f" />
 
