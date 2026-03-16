@@ -1,16 +1,15 @@
 [atabook](https://yfl.atabook.org/)ㅤ[ext](https://rentry.co/needyourblood)ㅤ[yappy yap](https://rentry.co/ethelcain)
 
-THE CEO OF QSMP2 ASHSWAG X YOUNG MULTI DUO DO NOT PLAY WITH ME
+watch qsmp2 villain duo (ashswag + youngmulti) canon and im their ceo :D
+
+<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" />
 
 
-<img width="448" height="258" alt="Zrzut-ekranu-2026-02-21-134228" src="https://github.com/user-attachments/assets/1be1ea30-5cf0-44b1-93cb-6893ca3d625f" />
+https://github.com/user-attachments/assets/86db192d-7c69-46be-acd5-faa3cb11ae53
 
 
 
 
-![makesweet-draxv9](https://github.com/user-attachments/assets/de4cb368-c644-4916-b222-d5a2307ee0ec)
-
-party poopers yay partypoopers duo [@orph](https://github.com/needyourbiood) + [@pawn](https://github.com/pawnresearch)
 
 
 
