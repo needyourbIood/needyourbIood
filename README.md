@@ -2,7 +2,8 @@
 
 watch qsmp2 villain duo (ashswag + youngmulti) canon and im their ceo :D
 
-<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" />
+<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="267" height="331" alt="image" src="https://github.com/user-attachments/assets/534310af-4d7a-4dac-ba33-222930263fd6" />
+
 
 
 https://github.com/user-attachments/assets/86db192d-7c69-46be-acd5-faa3cb11ae53
