@@ -1,13 +1,24 @@
 [atabook](https://yfl.atabook.org/)ㅤ[ext](https://rentry.co/needyourblood)ㅤ[yappy yap](https://rentry.co/ethelcain)
 
-watch qsmp2 villain duo (ashswag + youngmulti) canon and im their ceo :D
-
-<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="267" height="331" alt="image" src="https://github.com/user-attachments/assets/534310af-4d7a-4dac-ba33-222930263fd6" />
+welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
 
 
 
-https://github.com/user-attachments/assets/86db192d-7c69-46be-acd5-faa3cb11ae53
+<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="506" height="379" alt="image" src="https://github.com/user-attachments/assets/5f876b10-cdef-4755-b295-949024fcf55c" />
 
+
+
+
+
+
+
+
+
+<img width="1610" height="991" alt="image" src="https://github.com/user-attachments/assets/e86622ba-5722-423e-8182-d1971341bd44" />
+
+
+
+https://github.com/user-attachments/assets/fd77fcfd-26ef-4af2-a19c-f62be67f581d
 
 
 
