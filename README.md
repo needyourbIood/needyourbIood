@@ -5,7 +5,7 @@ welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
 
 
 
-<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="380" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/efaf1ede-b6e2-4d9e-a4e1-76e0b6896be2" /> <img width="506" height="379" alt="image" src="https://github.com/user-attachments/assets/5f876b10-cdef-4755-b295-949024fcf55c" />
+<img width="500" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="350" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/efaf1ede-b6e2-4d9e-a4e1-76e0b6896be2" /> <img width="506" height="379" alt="image" src="https://github.com/user-attachments/assets/5f876b10-cdef-4755-b295-949024fcf55c" />
 
 
 
