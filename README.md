@@ -30,7 +30,8 @@ https://github.com/user-attachments/assets/fd77fcfd-26ef-4af2-a19c-f62be67f581d
 
 <br> credits to zwihrrr on Xㅤㅤㅤㅤㅤhe drew this for me guys waw :3c 
 
-<img width="400" height="645" alt="image" src="https://github.com/user-attachments/assets/e37c8a8f-6d3f-40d1-b699-39e931d1d842" />
+<img width="390" height="645" alt="image" src="https://github.com/user-attachments/assets/e37c8a8f-6d3f-40d1-b699-39e931d1d842" /> <img width="510" height="645" alt="image" src="https://github.com/user-attachments/assets/99542083-4700-4355-979b-5f64e81c2c48" />
+
 
 
 
