@@ -5,8 +5,8 @@ welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
 <br> you mayㅤㅤsee meㅤㅤwith my friends.ㅤㅤjust occasionally.ㅤ	( -_・)
 
 
-<img width="359" height="516" alt="image" src="https://github.com/user-attachments/assets/26faed5f-f1ab-4604-9281-c268a4b7ce84" />
-<img width="480" height="506" alt="image" src="https://github.com/user-attachments/assets/ce5707ca-a7f7-483d-9164-ba9ed9ccd899" />
+<img width="396" height="516" alt="image" src="https://github.com/user-attachments/assets/26faed5f-f1ab-4604-9281-c268a4b7ce84" />
+<img width="445" height="506" alt="image" src="https://github.com/user-attachments/assets/ce5707ca-a7f7-483d-9164-ba9ed9ccd899" />
 
 
 
@@ -14,7 +14,9 @@ welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
 
 
 
-<img width="457" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="340" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/efaf1ede-b6e2-4d9e-a4e1-76e0b6896be2" /> <img width="506" height="379" alt="image" src="https://github.com/user-attachments/assets/5f876b10-cdef-4755-b295-949024fcf55c" /> <img width="335" height="413" alt="image" src="https://github.com/user-attachments/assets/99ad015e-693c-44a2-bc7a-e0254cd620b1" />
+<img width="487" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/feadb16e-773a-4760-ab92-bc955f088a36" /> <img width="358" height="373" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/efaf1ede-b6e2-4d9e-a4e1-76e0b6896be2" /> 
+
+<img width="506" height="379" alt="image" src="https://github.com/user-attachments/assets/5f876b10-cdef-4755-b295-949024fcf55c" /> <img width="335" height="413" alt="image" src="https://github.com/user-attachments/assets/99ad015e-693c-44a2-bc7a-e0254cd620b1" />
 
 
 
