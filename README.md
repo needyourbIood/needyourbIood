@@ -138,32 +138,7 @@ https://github.com/user-attachments/assets/20a2d152-d32a-4dd8-a0e1-3b3df7602f31
 
 ㅤㅤ
 
-ㅤㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤㅤ
 
-ㅤㅤ
-
-ㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤ
-ㅤㅤ
-
-ㅤㅤ
-
-ㅤㅤ
-
-2024 genshin i miss you #NGL 
-
-<img width="500" height="462" alt="dgQgduw (1)" src="https://github.com/user-attachments/assets/849e420e-da2b-4e9f-9212-d86227b1dc50"/>
 
 ㅤㅤ
 ㅤㅤ
