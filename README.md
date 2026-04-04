@@ -1,4 +1,4 @@
-[atabook](https://yfl.atabook.org/)ㅤ[ext](https://rentry.co/needyourblood)ㅤ[yappy yap](https://rentry.co/ethelcain)
+[RENTRY](https://rentry.co/naukosick)
 
 welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
 <br> i've quit ponytownㅤㅤi want to heal,ㅤand move on.ㅤㅤㅤsometimes
