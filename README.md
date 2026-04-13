@@ -7,6 +7,12 @@ welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
 
 <div align="center"/>
 
+
+
+https://github.com/user-attachments/assets/5857adc8-63ec-4b1d-860b-e308090ab304
+
+
+
 https://github.com/user-attachments/assets/9064fc41-fa07-4c85-a045-e5557e31e8fa
 
 </div>
