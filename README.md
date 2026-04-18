@@ -1,8 +1,11 @@
 [RENTRY](https://rentry.co/naukosick)
 
-welcome to villain duo wallㅤㅤ(ᗒ⩊ᗕ)ㅤㅤart creds to my friend teri !!
-<br> i've quit ponytownㅤㅤi want to heal,ㅤand move on.ㅤㅤㅤsometimes
-<br> you mayㅤㅤsee meㅤㅤwith my friends.ㅤㅤjust occasionally.ㅤ	( -_・)
+sometimesㅤonlineㅤonㅤhereㅤㅤ(ᗒ⩊ᗕ)ㅤㅤiㅤquitㅤponytown
+<br> sometimesㅤmightㅤbeㅤonㅤponytownㅤㅤ,ㅤㅤthoughㅤrarely
+
+
+<br> "ashmulti cornball"ㅤwe all know you're doing this because of me, not because u actually dislike the duo
+<br> you know who you are grow up and move on from me and my topic, because that's the hypocrisy i called you out on
 
 
 <div align="center"/>
