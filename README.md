@@ -17,8 +17,8 @@ https://github.com/user-attachments/assets/9064fc41-fa07-4c85-a045-e5557e31e8fa
 
 </div>
 
-<img width="396" height="516" alt="image" src="https://github.com/user-attachments/assets/26faed5f-f1ab-4604-9281-c268a4b7ce84" />
-<img width="445" height="506" alt="image" src="https://github.com/user-attachments/assets/ce5707ca-a7f7-483d-9164-ba9ed9ccd899" />
+<img width="390" height="516" alt="image" src="https://github.com/user-attachments/assets/26faed5f-f1ab-4604-9281-c268a4b7ce84" />
+<img width="441" height="506" alt="image" src="https://github.com/user-attachments/assets/ce5707ca-a7f7-483d-9164-ba9ed9ccd899" />
 
 
 
