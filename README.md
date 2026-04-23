@@ -4,9 +4,7 @@ sometimesㅤonlineㅤonㅤhereㅤㅤ(ᗒ⩊ᗕ)ㅤㅤiㅤquitㅤponytown
 <br> sometimesㅤmightㅤbeㅤonㅤponytownㅤㅤ,ㅤㅤthoughㅤrarely
 
 
-<br> "ashmulti cornball"ㅤwe all know you're doing this because of me, not because u actually dislike the duo
-<br> you know who you are grow up and move on from me and my topic, because that's the hypocrisy i called you out on
-<br> fucking thank you. literally just reach out to me if you still have an issue with me and stop harassing me this way
+
 
 
 <div align="center"/>
