@@ -9,14 +9,9 @@ sometimesㅤonlineㅤonㅤhereㅤㅤ(ᗒ⩊ᗕ)ㅤㅤiㅤquitㅤponytown
 
 <div align="center"/>
 
-https://github.com/user-attachments/assets/dd53db72-1b87-48f4-a433-80d2b6a92f86
-
-https://github.com/user-attachments/assets/5857adc8-63ec-4b1d-860b-e308090ab304
-
-
+<img src="https://i.imgur.com/BHnZgog.png"/>
 
 https://github.com/user-attachments/assets/1bce6c14-c656-4748-8c07-cf12854e13b1
-
 
 </div>
 
