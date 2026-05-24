@@ -1,6 +1,5 @@
 [RENTRY](https://rentry.co/naukosick)
 
-sometimesㅤonlineㅤonㅤhereㅤㅤ(ᗒ⩊ᗕ)ㅤㅤiㅤquitㅤponytown
 <br> sometimesㅤmightㅤbeㅤonㅤponytownㅤㅤ,ㅤㅤthoughㅤrarely
 
 
