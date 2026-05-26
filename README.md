@@ -1,43 +1,18 @@
 [RENTRY](https://rentry.co/naukosick)
 
-<br> sometimesㅤmightㅤbeㅤonㅤponytownㅤㅤ,ㅤㅤthoughㅤrarely
+<br>my‎ ‎ ‎head‎ ‎ ‎is‎ ‎ ‎full‎ ‎ ‎of‎ ‎ ‎poison,
+<br>and my heart is full of doubt
 
 
 
 
 
 <div align="center"/>
-
-<img src="https://i.imgur.com/BHnZgog.png"/>
-
+  
 https://github.com/user-attachments/assets/1bce6c14-c656-4748-8c07-cf12854e13b1
 
 </div>
 
-
-
-<img width="415" height="419" alt="image" src="https://github.com/user-attachments/assets/ce5707ca-a7f7-483d-9164-ba9ed9ccd899" />
-<img width="415" height="419" alt="IMG_3840 (1) (1)" src="https://github.com/user-attachments/assets/efaf1ede-b6e2-4d9e-a4e1-76e0b6896be2" /> 
-
-
-
-
-<img width="1610" height="991" alt="image" src="https://pbs.twimg.com/media/HGDNJPtXMAAUK0q?format=png&name=small" />
-
-
-
-https://github.com/user-attachments/assets/fd77fcfd-26ef-4af2-a19c-f62be67f581d
-
-<img width="1897" height="904" alt="image" src="https://github.com/user-attachments/assets/425b8bf8-2df5-496e-9a51-6fa52b72e3f3" />
-
-https://github.com/user-attachments/assets/20a2d152-d32a-4dd8-a0e1-3b3df7602f31
-
-
-https://github.com/user-attachments/assets/9064fc41-fa07-4c85-a045-e5557e31e8fa
-
-
-
-</div>
 
 ㅤㅤ
 
