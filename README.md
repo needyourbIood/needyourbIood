@@ -1,4 +1,4 @@
-[RENTRY](https://rentry.co/naukosick)
+[LINKS](https://rentry.co/lowswimmer)
 
 <br>my‎ ‎ ‎head‎ ‎ ‎is‎ ‎ ‎full‎ ‎ ‎of‎ ‎ ‎poison,
 <br>and my heart is full of doubt
