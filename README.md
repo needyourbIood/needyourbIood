@@ -11,10 +11,10 @@ https://github.com/user-attachments/assets/cc6e7dd4-9338-4b42-95c0-1e4735693456
 
 
 
-
-
-
 </div>
+
+<br>                                               i am probably in a better place now
+<br>                                        i hope i will be able to heal from my pain i endured
 
 ㅤㅤ
 
