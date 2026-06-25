@@ -1,20 +1,17 @@
 [LINKS](https://rentry.co/lowswimmer)
 
-<br>my‎ ‎ ‎head‎ ‎ ‎is‎ ‎ ‎full‎ ‎ ‎of‎ ‎ ‎poison,
-<br>and my heart is full of doubt
+<br>melt with u      till it all turns black
+<br>are we so in love   are we too attached?
 
 <div align="center"/>
 
   
 
-https://github.com/user-attachments/assets/cc6e7dd4-9338-4b42-95c0-1e4735693456
+
 
 
 
 </div>
-
-<br>                                           i am probably in a better place now
-<br>                                    i hope i will be able to heal from my pain i endured
 
 ㅤㅤ
 
