@@ -9,8 +9,19 @@
 
 <img width="840" height="688" alt="punsmp" src="https://github.com/user-attachments/assets/92f26332-fb84-4989-b41b-603fb75c79c2" />
 
+  
+  
+  
+  
 
 
+  
+<br>ponytown "stuff" i participated in or i am a part of :
+<br>• participated in [ponytown awards](https://x.com/ponytown_awards) back in 2024 
+<br>• "cool ponytowners" category on [@ponytowners](https://github.com/ponytowners)
+<br>• found on [@prettyponycollector](https://github.com/prettyponycollector) strawpage ♡
+<br>• #OG in "Shiny" category on the [@github-tierlist](https://rentry.co/github-tierlist)
+<br>• actively interacted on [@ponytownconfessions](https://github.com/ponytownconfessions)
 
 </div>
 
