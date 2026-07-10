@@ -1,21 +1,23 @@
-[EXT](https://rentry.co/novoamor)                pfp cr @/pixelpastaa on artfight    OC is mine 
-
-<br>                    melt with u      till it all turns black
-<br>                    are we so in love   are we too attached?
-
 <div align="center"/>
+  
+[EXTENDED](https://rentry.co/novoamor)       ♡       [ATABOOK](https://yfl.atabook.org/)
+
+
 
   
 
 
-https://github.com/user-attachments/assets/c121e926-5db5-495c-8f9b-acf7d4196101
+
+https://github.com/user-attachments/assets/7d93e254-6f81-4dae-ad98-3f4ff7427afd
 
 
 
 
 
 
-<img width="840" height="688" alt="punsmp" src="https://github.com/user-attachments/assets/92f26332-fb84-4989-b41b-603fb75c79c2" />
+
+
+
 
   
   
