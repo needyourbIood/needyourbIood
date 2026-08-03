@@ -6,7 +6,17 @@
 
   i am Ryland Grace    and Ryland Grace is me
 
-https://github.com/user-attachments/assets/b7cccd5a-9441-4832-91ef-3000e1c73e06
+
+https://github.com/user-attachments/assets/302c92b3-5e73-4a21-9c10-4fd79b2861a5
+
+
+
+
+
+
+
+
+
 
 
 
@@ -31,13 +41,6 @@ https://github.com/user-attachments/assets/b7cccd5a-9441-4832-91ef-3000e1c73e06
 <br>
 <br>
 
-  
-<br>ponytown "stuff" i participated in or i am a part of :
-<br>• participated in [ponytown awards](https://x.com/ponytown_awards) back in 2024 
-<br>• "cool ponytowners" category on [@ponytowners](https://github.com/ponytowners)
-<br>• found on [@prettyponycollector](https://github.com/prettyponycollector) strawpage ♡
-<br>• #OG in "Shiny" category on the [@github-tierlist](https://rentry.co/github-tierlist)
-<br>• actively interacted on [@ponytownconfessions](https://github.com/ponytownconfessions)
 
 </div>
 
