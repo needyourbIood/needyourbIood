@@ -1,8 +1,11 @@
 
-
-
-
 <div align="center"/>
+
+<img width="642" height="364" alt="image" src="https://github.com/user-attachments/assets/6c53dd03-93db-4523-8be3-dd22636ac0aa" />
+
+
+
+
   
 [EXTENDED](https://rentry.co/villainduo)       ♡       [ATABOOK](https://yfl.atabook.org/)
 
@@ -12,13 +15,6 @@
 
 
 https://github.com/user-attachments/assets/302c92b3-5e73-4a21-9c10-4fd79b2861a5
-
-
-hi i saw YoungMulti on 31st of July 2026 after it's been my dream for half a decade :D yay
-
-https://github.com/user-attachments/assets/b2ba8a5d-8ac8-45c3-9946-8b94df2659b0
-
-
 
 
 
