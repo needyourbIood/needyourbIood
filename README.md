@@ -17,9 +17,8 @@
   i am Ryland Grace    and Ryland Grace is me
 
 
-https://github.com/user-attachments/assets/04bd8eff-dc42-47dd-b1fa-c43430917125
 
-^ me and kody yay
+https://github.com/user-attachments/assets/02ce966a-1aaa-4e81-a2b3-8bd4a17676e0
 
 
 
