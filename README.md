@@ -15,6 +15,8 @@
 
 
   i am Ryland Grace    and Ryland Grace is me
+  <br> the edit is mine  no i don't post my edits anywhere
+  <br> + in the middle of reading the Project Hail Mary book
 
 
 
