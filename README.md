@@ -1,22 +1,24 @@
+<br> I HATE(LOVE) DONATHAN
+
+<img width="212" height="212" alt="explode-1786566948754" src="https://github.com/user-attachments/assets/2f796f6b-89b5-4f7d-9420-fbc962d7d786" />
+
 
 
 <div align="center"/>
 
-[kody](https://github.com/puppyiove) [kody](https://github.com/puppyiove) [kody](https://github.com/puppyiove)     [nikk](https://github.com/moonloverr) [nikk](https://github.com/moonloverr) [nikk](https://github.com/moonloverr) 
+[EXTENDED](https://rentry.co/villainduo)        [kody](https://github.com/puppyiove) [kody](https://github.com/puppyiove) [kody](https://github.com/puppyiove)  ♡  [nikk](https://github.com/moonloverr) [nikk](https://github.com/moonloverr) [nikk](https://github.com/moonloverr)        [ATABOOK](https://yfl.atabook.org/)
 
 <img width="642" height="364" alt="image" src="https://github.com/user-attachments/assets/6c53dd03-93db-4523-8be3-dd22636ac0aa" />
 
 
 
 
-  
-[EXTENDED](https://rentry.co/villainduo)       ♡       [ATABOOK](https://yfl.atabook.org/)
 
 
 
-  i am Ryland Grace    and Ryland Grace is me
-  <br> the edit is mine  no i don't post my edits anywhere
-  <br> + in the middle of reading the Project Hail Mary book
+
+  <br> check listography for most updated information ab me
+  <br> a guy that yaps everyday about some mf named Ryan Gosling
 
 
 
