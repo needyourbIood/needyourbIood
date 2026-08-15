@@ -1,7 +1,7 @@
 
 
 
-   𝜗ᧉ me and my favourite goslings against the ponyverse                      more on my [listography](https://listography.com/orph)
+   𝜗ᧉ me and my favourite goslings against the ponyverse                    more on my [listography](https://listography.com/orph)
    <br>   they make me very happy and feel alive thank you RGCU ♡                    incoming fav is starfighter!
    <br>   sign my atabook [here](https://yfl.atabook.org/) for a chat or a friend i dunno. maybe                    Sierra Six 06/08/26 ♡ (ᵔ⩊ᵔ)
 
