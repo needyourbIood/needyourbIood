@@ -22,7 +22,7 @@ hi my favourite song from Dead Man's Bones.
 <br>pls someone get Ryan Gosling back into such
 <br>music PLEASE. his choir vocals are insane bro.
 
-<img width="313" height="409" alt="image" src="https://github.com/user-attachments/assets/9d82a44c-b72f-454b-9392-74be3955077c" />
+<img width="293" height="389" alt="image" src="https://github.com/user-attachments/assets/9d82a44c-b72f-454b-9392-74be3955077c" />
 
 
 
