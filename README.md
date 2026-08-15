@@ -11,7 +11,6 @@
 
 IM GONNA ADD MORE OF THEM OK??????? I JUST NEED TO MAKE IT LOOK AESTHETIC. IM SORRY HOLLAND MARCH AND DRIVER
 
-  <br> a guy that yaps everyday about some mf named Ryan Gosling
 
 
 https://github.com/user-attachments/assets/a6a4375a-8992-45fe-9e3e-3dd4824cb99d
