@@ -16,9 +16,13 @@ IM GONNA ADD MORE OF THEM OK??????? I JUST NEED TO MAKE IT LOOK AESTHETIC. IM SO
 https://github.com/user-attachments/assets/a6a4375a-8992-45fe-9e3e-3dd4824cb99d
 
 
+</div>
 
+hi my favourite song from Dead Man's Bones.
+<br>pls someone get Ryan Gosling back into such
+<br>music PLEASE. his choir vocals are insane bro.
 
-
+<img width="313" height="409" alt="image" src="https://github.com/user-attachments/assets/9d82a44c-b72f-454b-9392-74be3955077c" />
 
 
 
@@ -46,7 +50,6 @@ https://github.com/user-attachments/assets/a6a4375a-8992-45fe-9e3e-3dd4824cb99d
 <br>
 
 
-</div>
 
 ㅤㅤ
 
