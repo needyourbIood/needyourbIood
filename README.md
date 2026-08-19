@@ -23,7 +23,7 @@ hi my favourite song from Dead Man's Bones.
 <br>pls someone get Ryan Gosling back into such                 hi my partner drew me as my oc and the RyGo's :3
 <br>music PLEASE. his choir vocals are insane bro.                 Gentry, Colt, Ken, and Grace! i love them so much..
 
-<img width="333" height="389" alt="image" src="https://github.com/user-attachments/assets/9d82a44c-b72f-454b-9392-74be3955077c" />       <img width="393" height="386" alt="image" src="https://github.com/user-attachments/assets/5a05e31f-617a-4221-bbb0-0d9479180b51" />
+<img width="333" height="389" alt="image" src="https://github.com/user-attachments/assets/9d82a44c-b72f-454b-9392-74be3955077c" />        <img width="393" height="386" alt="image" src="https://github.com/user-attachments/assets/5a05e31f-617a-4221-bbb0-0d9479180b51" />
 
 
 
