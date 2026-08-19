@@ -1,7 +1,5 @@
 
-<br>yes c+h is welcome. i am a huge cud comf so its very welcomed
-<br>especially by rgcu ponies! no need to ask on whispers for that ♡
-
+<br>yes c+h is welcome. i am a huge cud comf so feel free especially with rgcu ponies!
 ⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺
 
    𝜗ᧉ me and my favourite goslings against the ponyverse                    more on my [listography](https://listography.com/orph)
