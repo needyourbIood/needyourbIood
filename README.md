@@ -1,5 +1,8 @@
 
+<br>yes c+h is welcome. i am a huge hug comf so its very welcomed
+<br>especially by rgcu ponies! no need to ask on whispers for that ♡
 
+⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺
 
    𝜗ᧉ me and my favourite goslings against the ponyverse                    more on my [listography](https://listography.com/orph)
    <br>   they make me very happy and feel alive thank you RGCU ♡                  incoming fav is starfighter!
