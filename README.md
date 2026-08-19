@@ -1,5 +1,5 @@
 
-<br>yes c+h is welcome. i am a huge hug comf so its very welcomed
+<br>yes c+h is welcome. i am a huge cud comf so its very welcomed
 <br>especially by rgcu ponies! no need to ask on whispers for that ♡
 
 ⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺
