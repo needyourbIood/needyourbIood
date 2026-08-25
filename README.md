@@ -1,6 +1,6 @@
 
 <br>yes c+h is welcome. i am a huge cud comf so feel free especially with rgcu ponies!
-<br> dnc my skins u guys are quite fucking funny
+<br> dnc my skins u guys are quite fucking funny [my copiers rentry](https://rentry.co/lordhuron)
 ⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺
 
    𝜗ᧉ me and my favourite goslings against the ponyverse                    more on my [listography](https://listography.com/orph)
