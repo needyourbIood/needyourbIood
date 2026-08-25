@@ -1,5 +1,5 @@
 
-<br>yes c+h is welcome. i am a huge cud comf so feel free especially with rgcu ponies!
+<br>yes c+h is welcome. i am a huge cud comf so feel free especially with rgcu ponies!   AFK 80% OF THE TIME, EITHER ON MC/OFFTAB
 <br> dnc my skins u guys are quite fucking funny [my copiers rentry](https://rentry.co/lordhuron)
 ⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺
 
