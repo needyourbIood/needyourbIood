@@ -1,31 +1,31 @@
+<div align="center"/>
 
-<br>yes c+h is welcome. i am a huge cud comf so feel free especially with rgcu ponies!   AFK 80% OF THE TIME, EITHER ON MC/OFFTAB
-<br> dnc my skins u guys are quite fucking funny [my copiers rentry](https://rentry.co/moomins)
-⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&redirect=true)
 
-   𝜗ᧉ me and my favourite goslings against the ponyverse                    more on my [listography](https://listography.com/orph)
-   <br>   they make me very happy and feel alive thank you RGCU ♡                  incoming fav is starfighter!
-   <br>   sign my atabook [here](https://yfl.atabook.org/) for a chat or a friend i dunno. maybe                  Sierra Six 06/08/26 ♡ (ᵔ⩊ᵔ)
+<img src="https://i.imgur.com/9KoxXzL.png" alt="friends & more" align="center" width="220">
 
-  <div align="center"/>
-  
-<img width="132" height="132" alt="explode-1786566948754" src="https://github.com/user-attachments/assets/2f796f6b-89b5-4f7d-9420-fbc962d7d786" /> <img width="132" height="132" alt="explode-1786830583523" src="https://github.com/user-attachments/assets/6a730ed9-f5cc-46d7-9c5b-4ae02133bab8" /> <img width="132" height="132" alt="explode-1786830969140" src="https://github.com/user-attachments/assets/7071d038-3e21-46cc-9845-766ce1d79d58" /> <img width="132" height="132" alt="explode-1786831274889" src="https://github.com/user-attachments/assets/184160e1-b27e-47c4-b980-3697a59d2c1e" /> <img width="132" height="132" alt="explode-1786831354627" src="https://github.com/user-attachments/assets/ce5e2ed9-9019-498d-9a68-1c790eac9dd7" /> <img width="132" height="132" alt="explode-1786831490913" src="https://github.com/user-attachments/assets/5c674bef-6ea1-4f8f-bfe7-e858fb5bfce4" />
-
-IM GONNA ADD MORE OF THEM OK??????? I JUST NEED TO MAKE IT LOOK AESTHETIC. IM SORRY HOLLAND MARCH AND DRIVER
-
-
-
-https://github.com/user-attachments/assets/a6a4375a-8992-45fe-9e3e-3dd4824cb99d
-
+orph ᵒᵘ grace 𓇼 16yo.
+<br> no pronoun ♩ sign my [ata](https://yfl.atabook.org/)
+<br> ++ read my [rentry](https://rentry.co/goslings) (✿◠‿◠)
+<br>───────────────────
 
 </div>
 
-hi my favourite song from Dead Man's Bones.
-<br>pls someone get Ryan Gosling back into such                 hi my partner drew me as my oc and the RyGo's :3
-<br>music PLEASE. his choir vocals are insane bro.                 Gentry, Colt, Ken, and Grace! i love them so much..
 
-<img width="333" height="389" alt="image" src="https://github.com/user-attachments/assets/9d82a44c-b72f-454b-9392-74be3955077c" />        <img width="393" height="386" alt="image" src="https://github.com/user-attachments/assets/5a05e31f-617a-4221-bbb0-0d9479180b51" />
-
+<h5 align="center">
+<details>
+  <summary>⠀☆⠀friends ﹠ more</summary>
+  <table align="center"><caption>
+    <tr><td align="center">
+   <p align="center">
+　　　　　　　　　　　　<br>↓ ⟡ bffs<br><a href="https://github.com/zxsunday">@zxsunday</a> <br><a href="https://github.com/puppyiove">@puppyIove</a> ♡<br><a href="https://github.com/coltlandtwins">@coltlandtwins</a><br><a href="https://github.com/shokosclinic">@shokosclinic</a><br><a href="https://github.com/purrcore">@purrcore</a><br>
+     <br>↓ ⟡ execution party<br><a href="https://github.com/sammioe">@sammioe</a><br><a href="https://github.com/rxchie">@rxchie</a><br><a href="https://github.com/lohelia">@lohelia</a><br><a href="https://github.com/zxsunday">@zxsunday</a><br><a href="https://github.com/Simonzky">@simonzky</a><br>
+<br>↓ ⟡ friends<br><a href="https://github.com/5uguru">@5uguru</a><br><a href="https://github.com/moonloverr">@moonloverr</a><br><a href="https://github.com/fIowerboy">@fIowerboy</a><br><a href="https://github.com/pibblestick">@pibblestick</a><br><a href="https://github.com/t0rntodescent">@t0rntodescent</a><br><a href="https://github.com/lifeIover">@lifeIover</a><br><br>++ TBA. shout out to my punsmp<br>friends, i love you all so so much.<br><br>full lovemail is <a href="https://rentry.co/kuqe">here</a> ← click ♥︎
+            </p>
+    </td></tr></caption></table>
+  </details>
+  
+  </h5>
 
 
 
