@@ -1,6 +1,7 @@
 <div align="center"/>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&redirect=true)
+<br> TSUNDERE GC [@KODY](https://github.com/puppyiove) [@SOAP](https://github.com/shokosclinic) [@NIKK](https://github.com/moonloverr)
 
 <img src="https://i.imgur.com/9KoxXzL.png" alt="friends & more" align="center" width="220">
 
