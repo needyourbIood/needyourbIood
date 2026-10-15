@@ -28,8 +28,12 @@ orph ᵒᵘ grace 𓇼 16yo.
   
   </h5>
 
+<div align="center"/>
+
+<img width="442" height="305" alt="image" src="https://github.com/user-attachments/assets/1d630bc2-e26a-400b-b1eb-05ea1df30110" />
 
 
+</div>
 
 
 <br> 
