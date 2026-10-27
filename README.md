@@ -1,7 +1,8 @@
+i have to rmk it. im lazy.And tired
+
 <div align="center"/>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&redirect=true)
-<br> TSUNDERE GC [@KODY](https://github.com/puppyiove) [@SOAP](https://github.com/shokosclinic) [@NIKK](https://github.com/moonloverr)
 
 <img src="https://i.imgur.com/9KoxXzL.png" alt="friends & more" align="center" width="220">
 
@@ -19,9 +20,9 @@ orph ᵒᵘ grace 𓇼 16yo.
   <table align="center"><caption>
     <tr><td align="center">
    <p align="center">
-　　　　　　　　　　　　<br>↓ ⟡ bffs<br><a href="https://github.com/zxsunday">@zxsunday</a> <br><a href="https://github.com/puppyiove">@puppyIove</a> ♡<br><a href="https://github.com/coltlandtwins">@coltlandtwins</a><br><a href="https://github.com/shokosclinic">@shokosclinic</a><br><a href="https://github.com/purrcore">@purrcore</a><br>
-     <br>↓ ⟡ execution party<br><a href="https://github.com/sammioe">@sammioe</a><br><a href="https://github.com/rxchie">@rxchie</a><br><a href="https://github.com/lohelia">@lohelia</a><br><a href="https://github.com/zxsunday">@zxsunday</a><br><a href="https://github.com/Simonzky">@simonzky</a><br>
-<br>↓ ⟡ friends<br><a href="https://github.com/5uguru">@5uguru</a><br><a href="https://github.com/moonloverr">@moonloverr</a><br><a href="https://github.com/pibblestick">@pibblestick</a><br><a href="https://github.com/kadita-san">@kadita-san</a><br><a href="https://github.com/t0rntodescent">@t0rntodescent</a><br><a href="https://github.com/eunyungbaek">@eunyungbaek</a><br><a href="https://github.com/lifeIover">@lifeIover</a><br><br>++ TBA. shout out to my punsmp<br>friends, i love you all so so much.<br><br>full lovemail is <a href="https://rentry.co/kuqe">here</a> ← click ♥︎
+　　　　　　　　　　　　<br>↓ ⟡ bffs<br><a href="https://github.com/zxsunday">@zxsunday</a> <br><a href="https://github.com/chiIuc">@chiIuc</a> ♡<br><a href="https://github.com/FRANKlERO">@FRANKlERO</a><br><a href="https://github.com/shokosclinic">@shokosclinic</a><br><a href="https://github.com/purrcore">@purrcore</a><br>
+     <br>↓ ⟡ execution party<br><a href="https://github.com/sammioe">@sammioe</a><br><a href="https://github.com/rxchie">@rxchie</a><br><a href="https://github.com/lohelia">@lohelia</a><br><a href="https://github.com/zxsunday">@zxsunday</a><br><a href="https://github.com/Simonzky">@simonzky</a><br><a href="https://github.com/girlkissing">@girlkissing</a>
+<br>↓ ⟡ friends<br><a href="https://github.com/5uguru">@5uguru</a><br><a href="https://github.com/moonloverr">@moonloverr</a><br><a href="https://github.com/pibblestick">@pibblestick</a><br><a href="https://github.com/kadita-san">@kadita-san</a><br><a href="https://github.com/t0rntodescent">@t0rntodescent</a><br><a href="https://github.com/eunyungbaek">@eunyungbaek</a><br><a href="https://github.com/lifeIover">@lifeIover</a><br><br><br>full lovemail is <a href="https://rentry.co/kuqe">here</a> ← click ♥︎
             </p>
     </td></tr></caption></table>
   </details>
