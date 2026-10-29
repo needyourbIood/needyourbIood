@@ -22,8 +22,8 @@ i have to rmk it. im lazy.And tired
     <tr><td align="center">
    <p align="center">
 　　　　　　　　　　　　<br>↓　　(ᵔ⩊ᵔ)<br><a href="https://github.com/zxsunday">@zxsunday</a>　<a href="https://github.com/chiIuc">@chiIuc</a>　<a href="https://github.com/sakizuke">@sakizuke</a><br><a href="https://github.com/FRANKlERO">@FRANKlERO</a>　<a href="https://github.com/shokosclinic">@shokosclinic</a>　<a href="https://github.com/purrcore">@purrcore</a><br>
-     <br>↓ ⟡ execution party<br><a href="https://github.com/sammioe">@sammioe</a>　<a href="https://github.com/rxchie">@rxchie</a>　<a href="https://github.com/lohelia">@lohelia</a><br><a href="https://github.com/zxsunday">@zxsunday</a>　<a href="https://github.com/Simonzky">@simonzky</a>　<a href="https://github.com/girlkissing">@girlkissing</a><br>
-<br>↓ ⟡ friends<br><a href="https://github.com/5uguru">@5uguru</a>　<a href="https://github.com/moonloverr">@moonloverr</a>　<a href="https://github.com/kadita-san">@kadita-san</a><br><a href="https://github.com/t0rntodescent">@t0rntodescent</a>　<a href="https://github.com/eunyungbaek">@eunyungbaek</a>　<a href="https://github.com/lifeIover">@lifeIover</a><br><br><br>full lovemail is <a href="https://rentry.co/kuqe">here</a> ← click ♥︎
+     <br><br><a href="https://github.com/sammioe">@sammioe</a>　<a href="https://github.com/rxchie">@rxchie</a>　<a href="https://github.com/lohelia">@lohelia</a><br><a href="https://github.com/zxsunday">@zxsunday</a>　<a href="https://github.com/Simonzky">@simonzky</a>　<a href="https://github.com/girlkissing">@girlkissing</a><br>
+<br><br><a href="https://github.com/5uguru">@5uguru</a>　<a href="https://github.com/moonloverr">@moonloverr</a>　<a href="https://github.com/kadita-san">@kadita-san</a><br><a href="https://github.com/t0rntodescent">@t0rntodescent</a>　<a href="https://github.com/eunyungbaek">@eunyungbaek</a>　<a href="https://github.com/lifeIover">@lifeIover</a><br><br><br>full lovemail is <a href="https://rentry.co/kuqe">here</a> ← click ♥︎
             </p>
     </td></tr></caption></table>
   </details>
