@@ -6,7 +6,6 @@ i have to rmk it. im lazy.And tired
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=gehh58e8f0xpouhgo6rd3sbmt&redirect=true)
 
 
-</div>
 <br> 
 <br>
 <br>
@@ -14,8 +13,11 @@ i have to rmk it. im lazy.And tired
 <br>
 <br>
 <br>
+<br><a href=""><img src="https://img.shields.io/badge/i love whoever made this on twitter-rgba(0,0,0,0)?style=flat-square" /></a>
+<br>
+<img width="205" height="205" alt="image" src="https://github.com/user-attachments/assets/b750810c-c763-4184-b9f6-84093d7f29ec" />
 
-
+</div>
 
 <h5 align="center">
 <details>
