@@ -1,5 +1,5 @@
 i have to rmk it. im lazy.And tired
-<br> [atabook](https://goslings.atabook.org/) temporarily here 
+<br> [atabook](https://goslings.atabook.org/) + [byi rentry](https://rentry.co/thehungergames)
 
 <div align="center"/>
 
